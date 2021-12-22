@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlFrMiSi
+- 👀 I’m interested in cats and travelling
+- 🌱 I’m currently learning Python Program and hopefully i can do something better in this field. I want to collaboration with someone but i'm really beginner.
+- 😉 This is my starting point. So i'm trying to put my level a little bit up and have a confident to talk with someone.
